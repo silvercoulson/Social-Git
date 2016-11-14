@@ -1,2 +1,7 @@
 # Social Git! Lets make something
-HHAHHAHAHAH
+
+Andrew - HHAHHAHAHAH
+
+Who is up next?!
+
+I am up next, your turn Collin.
